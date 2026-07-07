@@ -1,1 +1,0 @@
-# jejakkaryakukls1sdnbalirejo
